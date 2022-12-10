@@ -1,3 +1,0 @@
-# Knowledge_Bench
-
-Topics  
